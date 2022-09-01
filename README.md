@@ -6,8 +6,8 @@ ode to an academic advisor
 
 ## Happy
 
-Joined a frat
+Joined a frat and got to meet so many new people. 
 
 ## Crappy
 
-Joined a frat
+Calc 2 is going to be the hardest class I've ever taken. 
